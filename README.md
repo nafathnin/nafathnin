@@ -55,7 +55,7 @@ I enjoy exploring data, cleaning messy datasets, and creating dashboards that he
 
 📧 **Email**: [nafathnin@gmail.com](mailto:nafathnin@gmail.com)
 
-💼 **LinkedIn**: [nafathnin](linkedin.com/in/nafathnin)
+💼 **LinkedIn**: [fathninuraz](https://www.linkedin.com/in/fathninuraz/)
 
 ---
 
