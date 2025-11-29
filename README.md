@@ -2,7 +2,7 @@
 
 # 🌷 Hi, I'm **Fathnin**
 
-### Aspiring Data Analyst • Detail-Oriented • Fast Learner ♡
+### ♡ Aspiring Data Analyst • Detail-Oriented • Fast Learner ♡
 
 </div>
 
